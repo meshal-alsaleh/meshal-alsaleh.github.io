@@ -1,4 +1,4 @@
-## Welcome to My Page , here im posting my project updates .
+## Welcome to My project Page , here i post updates about my project .
 
 
 
